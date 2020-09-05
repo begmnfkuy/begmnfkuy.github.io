@@ -1,1 +1,0 @@
-# begmnfkuy.github.io
